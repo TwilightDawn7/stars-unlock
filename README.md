@@ -1,1 +1,1 @@
-# stars-unlock-yay
+# stars-unlock!
